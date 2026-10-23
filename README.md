@@ -1,5 +1,1 @@
-## Primero DAW
-
-Bienvenides, para completar el ejercicio, añade tu nombre a esta lista.
-
-- Paloma
+Tengo ganas de fin de semana
